@@ -1,2 +1,4 @@
 # Futurexisaskid
 FutureX is a shit skid of a shit ton of clients. Sorry for anyone who bought it :(
+ITS RATTED DONT DOWNLOAD FOR RN
+WILL UPDATE THIS README WHEN I REMOVE THE RAT
